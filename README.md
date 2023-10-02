@@ -11,7 +11,8 @@
 
 - 📫 How to reach me **khantalak2609@gmail.con**
 
-- 📄 Know about my experiences [asda](asda)
+- 📄 Know about my experiences [Aaditya_s_Resume.pdf](https://github.com/Aaditya2609/Aaditya2609/files/12783181/Aaditya_s_Resume.pdf)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
